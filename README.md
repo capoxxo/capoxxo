@@ -21,3 +21,5 @@
 \[Slippery.GG\] Missed shot due to resolver
 \[Slippery.GG\] Missed shot due to resolver
 \[Slippery.GG\] Missed shot due to resolver
+\[Slippery.GG\] Missed shot due to resolver
+https://soundcloud.com/capoxxo
