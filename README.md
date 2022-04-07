@@ -1,25 +1,3 @@
-\[slippery.gg\] Missed shot due to resolver
-\[slippery.gg\] Missed shot due to resolver
-\[slippery.gg\] Missed shot due to resolver
-\[slippery.gg\] Missed shot due to resolver
-\[slippery.gg\] Missed shot due to resolver
-\[slippery.gg\] Missed shot due to resolver
-\[slippery.gg\] Missed shot due to resolver
-\[slippery.gg\] Missed shot due to resolver
-\[slippery.gg\] Missed shot due to resolver
-\[slippery.gg\] Missed shot due to resolver
-\[slippery.gg\] Missed shot due to resolver
-\[slippery.gg\] Missed shot due to resolver
-\[slippery.gg\] Missed shot due to resolver
-\[slippery.gg\] Missed shot due to resolver
-\[slippery.gg\] Missed shot due to resolver
-\[slippery.gg\] Missed shot due to resolver
-\[slippery.gg\] Missed shot due to resolver
-\[slippery.gg\] Missed shot due to resolver
-\[slippery.gg\] Missed shot due to resolver
-\[slippery.gg\] Missed shot due to resolver
-\[slippery.gg\] Missed shot due to resolver
-\[slippery.gg\] Missed shot due to resolver
-\[slippery.gg\] Missed shot due to resolver
-\[slippery.gg\] Missed shot due to resolver
+\[neverlose.cc\] Missed shot due to NN resolver. Use slippery.gg instead!
+
 https://soundcloud.com/capoxxo/
