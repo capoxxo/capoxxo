@@ -22,4 +22,4 @@
 \[slippery.gg\] Missed shot due to resolver
 \[slippery.gg\] Missed shot due to resolver
 \[slippery.gg\] Missed shot due to resolver
-https://soundcloud.com/capoxxo
+https://soundcloud.com/capoxxo/
